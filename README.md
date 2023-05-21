@@ -1,1 +1,1 @@
-# emmajean.be
+# Emma Jean, Jumping Bean
