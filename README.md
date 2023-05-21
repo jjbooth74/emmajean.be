@@ -1,1 +1,1 @@
-# Emma Jean, Jumping Bean
+# Emma Jean Booth
